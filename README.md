@@ -1,2 +1,2 @@
 # pacmo
-Life is a song, it can't be well without rhythmn.
+Life is a song, it can't exist without rhythmn.
